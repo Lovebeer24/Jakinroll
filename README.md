@@ -1,0 +1,4 @@
+# Jakinroll
+
+
+Reklam geçildi teşekkürler
